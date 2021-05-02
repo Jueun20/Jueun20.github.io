@@ -1,6 +1,11 @@
-## 💛 This is a yellow heart 💛
-## 🧡 This is a orange heart 🧡
-## 💜 This is a purple heart 💜
-## 💚  This is a green heart 💚
-## 💙  This is a blue heart  💙
-#### 🖤🤍🖤🤍🖤🤍🖤🤍🖤🤍
+### What’s your color I wanna know 🧐🧐
+
+## I could be red 🍒🍒 or
+## I could be yellow 🌼🌼
+
+## I could be blue 💧💦 or
+## I could be purple 💜💜
+## I could be green 🍀🍀 or 
+## pink 🎀🎀 or black 🖤 or white 🤍
+
+### 🙈 I could be every color you like 🙈
