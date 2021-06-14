@@ -1,4 +1,4 @@
-## 🧐 What’s your color I wanna know 🧐
+#### 🧐 What’s your color I wanna know 🧐
 ### 🧐 What’s your color I wanna know 🧐
 
   ## I could be *red* 🍒🍒 or
